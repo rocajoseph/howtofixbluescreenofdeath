@@ -1,9 +1,9 @@
-How to Fix Blue Screen of D eath
+How to Fix Blue Screen of Death
 =========================
 
 Best Blue Screen Of Death Fixer Software, fix PC errors in 3 Steps! <br /><br />
 <a href="http://www.lionsea.com/download/fixer/Smart_Blue_Screen_Of_Death_Fixer_Pro_Setup.exe"><img src="http://c.lionsea.net//bonnie/downloadtwinkle.gif" /></a><br /><br />
-You know, <a href="https://github.com/fhiosdyoung/BSOD">blue screen</a> is so annoying which many computer users complain about this problem. <a href="https://archive.org/details/HowToFixSmartBlueScreenOfDeathFixer">How to fix blue screen of death</a>? < br /> 
+You know, <a href="https://github.com/fhiosdyoung/BSOD">blue screen</a> is so annoying which many computer users complain about this problem. <a href="https://archive.org/details/HowToFixSmartBlueScreenOfDeathFixer">How to fix blue screen of death</a>?<br />
 This is not a difficult computer issue any more. You can deal with it yourself as long as you have a professional PC fixer software.<br /><br />
 
 This magic software named Smart Blue Screen of Death Fixer Pro which is skilled in fixing <a href="http://www.tucows.com/preview/1594748">BSOD</a>. BSOD is the short name of <a href="http://www.windows8downloads.com/win8-smart-blue-screen-of-death-fixer-pro-harrcckb/">blue screen of death</a>.<br />
